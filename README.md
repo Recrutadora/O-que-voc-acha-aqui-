@@ -1,1 +1,2 @@
-# O-que-voc-acha-aqui-
+Olá tudo bem eu sou recrutadora e procuro profisisonais para a área tech.
+Mande seu email para ....
